@@ -1,4 +1,4 @@
-# Hi, I'm Jie-En Liu (Joxanne)
+# Hi, I'm Jie-En Liu
 
 **M.S. in Computer Science @ National Chung Hsing University**
 GPA 4.3/4.3 · Rank 2 / 73
